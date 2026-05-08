@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "99 - Templates/Template - Media Diary.md",
+                "file": "02 - Media Tracker/Movies/Movies - Watch Log 2026.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Template - Media Diary"
+              "title": "Movies - Watch Log 2026"
             }
           }
         ]
@@ -182,29 +182,33 @@
       "templater-obsidian:Templater": false
     }
   },
-  "active": "8c25291a91fc692f",
+  "active": "f69ce78661703ee0",
   "lastOpenFiles": [
-    "02 - Media Tracker/TV Shows/Thai GLs/Thai GLs - Watch Diary.md",
+    "02 - Media Tracker/Kpop/FFs",
+    "02 - Media Tracker/Comics",
+    "02 - Media Tracker/Novels",
     "99 - Templates/Template - Media Diary.md",
-    "02 - Media Tracker/TV Shows/Thai GLs/Thai GLs - Fandom Drama & News.md",
+    "03 - Tech Encyclopedia/000 HOME.md",
     "02 - Media Tracker/Movies/Movies - Watch Log 2026.md",
+    "02 - Media Tracker/TV Shows/Thai GLs/00 Thai GLs - Master Dashboard.md",
+    "02 - Media Tracker/TV Shows/Thai GLs/GAP.md",
+    "02 - Media Tracker/TV Shows/Thai GLs/23.5.md",
+    "02 - Media Tracker/TV Shows/Thai GLs/Thai GLs - Fandom Drama & News.md",
+    "02 - Media Tracker/TV Shows/Thai GLs/Thai GLs - Watch Diary.md",
     "02 - Media Tracker/Kpop/Mamamoo",
     "02 - Media Tracker/Kpop/Dreamcatcher",
     "02 - Media Tracker/Kpop/TWICE",
     "02 - Media Tracker/Kpop",
-    "000 HOME.md",
     "02 - Media Tracker/Movies",
     "02 - Media Tracker/TV Shows/Thai GLs",
     "02 - Media Tracker/TV Shows",
     "Untitled",
-    "99 - Templates",
-    "03 - Tech Encyclopedia",
-    "Internet & Web.md",
-    "Hardware.md",
+    "03 - Tech Encyclopedia/Internet & Web.md",
+    "03 - Tech Encyclopedia/Hardware.md",
     "2026-04-29.md",
     "Untitled.canvas",
     "Welcome.md",
-    "Sync Testing 1.md",
-    "OS & Software.md"
+    "03 - Tech Encyclopedia/Sync Testing 1.md",
+    "03 - Tech Encyclopedia/OS & Software.md"
   ]
 }
