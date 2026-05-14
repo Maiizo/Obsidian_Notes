@@ -1,21 +1,34 @@
 ---
-Type:
-Status: Finished
-Rating: 10
-Date_Finished: 2026-05-08
+Type: Thai GL
+Rating: 0
+Ending: Happy/Sad/ambiguos
+Date_Started:
+Date_Finished:
+Trope:
+  - -
 ---
-# 🎬 
+# 🎬 TItle
 
 > [!summary] Synopsis & Info
-> **Genre:** Romcom | **Platform:** YouTube | **Episodes:** 12
+> **Genre:**  | **Studio**:  | **Episodes:** 12 | **Platform:** YouTube
 > **Synopsis:** 
 > 
 
-**👥 Characters**
-* **Main:**  & [[Love]]
-* **Side:** [[View]] & [[June]]
+**👥 Actor**
+* **Main:** [[]] & [[]]
+* **Side:** [[]] & [[]]
+
+**📊 Detailed Scores**
+* **Acting:** /10
+* **Writing:** /10
+* **Pacing:** /10
+* **Production:** /10
+
+**✨ What Worked**
+* 
+
+**🚩 What Didn't**
+*
 
 **💭 Overall Review**
-* Overall very cute almost no cathartic or cryworthy. very smooth and lots of funny moments.
-* Acting is also good, editing is also good, song is a bit overused.
-* All the character are likeable
+* 
