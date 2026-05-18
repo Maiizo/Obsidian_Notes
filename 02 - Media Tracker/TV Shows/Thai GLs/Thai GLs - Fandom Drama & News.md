@@ -1,99 +1,57 @@
+# 🎭 Thai GL Fandom & Lore Masterlist
 
-New to Thai GL's, have some questions about casting, etc
-https://www.reddit.com/r/GirlsLove/s/7d9ldLSh4p
-Bnyk pertanyaan ttg shipping and pairing and culture
+> [!info] General GL Culture & GMMTV Shipping
+> * **New to Thai GLs:** A good Reddit thread explaining casting, shipping, and pairing culture: [Read Here](https://www.reddit.com/r/GirlsLove/s/7d9ldLSh4p)
+> * **GMMTV's Strategy:** The owner of GMMTV is known to mix and match "ships" (couples) based on which target market looks promising. They don't mind sinking ships to test new pairings. 
+> * **Annual Livestreams:** GMMTV holds annual livestreams introducing pilots/trailers for the next year. 
+>     * [[23.5 (2024)]] appeared on GMMTV2023
+>     * [[Pluto (2025)]] appeared on GMMTV2024 pt.1
+>     * [[US the Series (2025)]] appeared on GMMTV2024 pt.2
+>     * [[Girl Rules]] appeared on GMMTV2025
+>     * *GMMTV2026 Lineup:* [[Ditto]], [[Her]], [[Enemies with Benefit]], [[Bake Love Feeling]], [[Wish Upon a Star]], [[Moon Shadow]], [[Love's Echoes]], [[Oxytocin]]
 
+---
 
+## 🥛🍼 Milk & Love (MilkLove)
+*The first official GL couple in GMMTV.*
 
-pas syuting whale store udah rampung, rame beredar muvmuv yang lihat obrolan produser wsx (yg cowo) dengan temannya di facebook, isi percakapannya mengandung pelec3han ke ML, udah agak lupa ucapannya kya gimna. Setelah itu muvmuv protes ke pihak gmm hingga akhirnya produser itu dikeluarkan dari gmmtv. udah gak kerjasama lagi sama gmmtv
+**The Origin & Timeline:**
+* **Bad Buddy:** They became the first GMMTV GL couple because their chemistry was so good as the second couple in *Bad Buddy*.
+* **The SOKOR Trip:** Originally planned as a group trip, but others canceled, so Milk (Pansa) and Love went to South Korea alone. This trip sparked a lot of "deep talks" and noticeably changed their dynamic. It took about 2-3 years for Milk to get as close and "clingy" to Love as she is now.
+* **Relationship Rumors:** Around August 2024 (a few months after *23.5* ended), strong rumors circulated that Love broke up with her boyfriend of 2 years. Love's attitude noticeably shifted after this and the SOKOR trip.
 
+**Incidents & Trivia:**
+* **Whale Store Controversy:** After shooting *Whale Store*, the producer made inappropriate/harassing comments about MilkLove to a friend on Facebook. MilkLove fans ("muvmuv") heavily protested to GMMTV, resulting in the producer being fired and blacklisted by GMMTV.
+* **"Top and Bottom" Talk:** Love once went around asking people about "top and bottom" dynamics, trying to pair people up (including pairing P'Sam with herself). Turns out, openly discussing top/bottom dynamics is quite normalized in Thai culture. [Video Link](https://vt.tiktok.com/ZSxdMrhcM/) | [P'Sam pairing link](https://vt.tiktok.com/ZSxdrRTfE/) | [Twitter link](https://x.com/i/status/1552652619755114499)
+* **Lovesvene:** Milk and Love talking about Love's brand, Lovesvene. [Video Link](https://vt.tiktok.com/ZSxLkfEF4/)
 
+---
 
-maksudnya sejak liburan bareng mungkin sekalian deep talk kan awalnya mereka tuh planning berame rame liburannya, eh gk taunya pas itu temennya yg lain ada yg gk bisa gegara ada keperluan jadi akhire ngetrip berdua doang ke SOKOR, pokoknya kalo ngikutin MilkLove sedari lama pasti paham perbedaannya dari dulu dg yg sekarang. Sejak seriesnya 23,5 ending sekitaran beberapa bulan kemudian di bulan agustus 2024 ada rumor cimit putus sama bf nya, bener gk nya aq kurang tau tapi
+## 🌴🎞️ Namtan & Film (NamtanFilm)
+*A pairing that surprised fans who originally thought they would just play siblings.*
 
-beritanya santer 2th lalu dan sejakitu sikap cimit beda banget ples setelah pulang liburan dari SOKOR berdua sama pansa. Pansa bisa dekat dg cimit butuh sekitar 2-3 th untuk cimit bisa senempel itu
+**The Origin & Casting:**
+* **The Original Plan:** Love was actually supposed to be paired with Film initially. However, GMMTV and the Snap25 production team rejected this because they saw much stronger chemistry between Namtan and Film.
+* **Building the Ship:** Film was previously shipped with Love and even Milk when Film was a newbie. Namtan and Film finally started working closely together in *Last Twilight*, *Ploy's Yearbook*, and eventually landed the main roles in *Pluto*.
+* **Manager:** Mim (@memory.mimrtd) handles management. 
 
+**Film's Backstory (The Hate Train):**
+* In 2023, Film got a lot of main roles, including being paired with Nanon (a very popular BL actor). Because of this, she received massive hate from his toxic fans. 
+* The bullying caused her to distance herself from social media. It was Namtan who stepped in and helped pull her out of her dark zone. 
+* **Must Watch:** Their BBFanfest ending speech perfectly encapsulates this. [Eng Sub Link](https://vt.tiktok.com/ZSx6m8TAM/)
+* *Note:* Milk and Film used to comment on each other's IG a lot. [Video Link](https://vt.tiktok.com/ZSxYQpBcL/)
 
+**Namtan's Backstory:**
+* Originally worked with Channel 3 (CH3).
+* Used to be quite closed with other people that was managed by their manager before (all male actor). 
+* **The "New" Incident:** GMMTV actor New once made a highly inappropriate comment stating Namtan was "prettier than a JAV actress." [Video Link](https://vt.tiktok.com/ZSxR6c4L7/)
 
-Pahn is one of the most  popular new straight actress (same batch as emi) that suddenly appears in a gl as a fixed CP 
-Reaction of ppl Abt this news:
-https://vt.tiktok.com/ZSxeCwYXM/
+---
 
+## 🌐 Other Actresses & Fandom Drama
 
-Love jodohin orang dan tanya orang ttg top and bottom. 
-Turns out it's normal in Thai to ask about top and bottom?
-https://vt.tiktok.com/ZSxdMrhcM/
-Trus di comment ada yg blg ttg p'sam dijodohin sama love trus beneran cocok
-
-Ini videonya dia 
-https://vt.tiktok.com/ZSxdrRTfE/
-
-
-
-
-https://x.com/i/status/1552652619755114499
-Ternyata namtan pernah dibilang dia lbh cantik daripada JAV oleh new (actor gmmtv)
-
-
-
-https://vt.tiktok.com/ZSxR6c4L7/
-Milklove Abt lovesvene
-
-
-
-https://vt.tiktok.com/ZSxLkfEF4/
-Nantam dulu belet sama cp managernya yg lain
-
-
-
-https://x.com/i/status/2052837925289628049
-Charlotte stalker confronted by engfa
-
-
-https://vt.tiktok.com/ZSxN4yURW/
-Milk and film used to comment on each other's ig
-
-
-https://vt.tiktok.com/ZSxYQpBcL/
-Top gmmtv female actress kisser
-
-
-
-https://www.instagram.com/reel/DSyzAYIABCi/?igsh=ZnJ4ZWp3cTh3dW14
-
-Panjie admitting to being gay and some ppl in comment tell about other actress
-
-
-
-
-https://www.reddit.com/r/ThaiGL/comments/1rytcgs/davika_should_just_stop_tweeting/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=1
-Davika tweet blg dia blm roi from clairebell
-
-
-Mim manager
-@memory.mimrtd
-
-
-
-
-
-Awalnya love mau dipasangin sama film, tp ditolak gmmtv dan snap25 lbh liat chemistry namtanfilm
-
-mereka tuh awalnya ngira mereka bakal dapat peran kakak adek kalo se series gak taunya malah di pasangin, fans mereka aja gak espect mereka jadi cp.
-
-Owner gmmtv hobi ngacak2 kapal jadi cp mana yg menurutnya punya target market bagus itulah yg dipairing, kalo kamu nyimak vt lama mereka pasti paham kapal hantunya film gk cuma sama Love ada juga film deket sama Pansa pas masih newbie di gmm tapi yg jd cp pertama gL justru MilkLove karena kemistri MilkLove bagus dan banyak fans yg suka pas jd second couple di Bad Buddy sedangkan Namtan Film yg pengen seprojek dg namtan akhirnya satu series di Last Twilight, Ploys year book dan dipertemukan sutradara buat casting main role di pluto
-
-
-Namtan pernah sempet di ch3
-
-Film dulu banyak dapet main role di 2023 dan dia main sebagai pairingnya nanon (popular Thai bl actor) trus kena hujat sama fansnya dia. Setelah itu dia menjauh dari sosmed dan gara" namtan baru dia bisa keluar dari zonanya lagi
-
-
-Bbfanfest namtanfilm ending speech eng sub bagus 
-https://vt.tiktok.com/ZSx6m8TAM/
-
-
-
-
-
-W
+* **Pahn's GL Debut:** Pahn is one of the most popular new straight actresses (same batch as Emi) who suddenly appeared in a GL as a fixed CP. [Reaction Link](https://vt.tiktok.com/ZSxeCwYXM/)
+* **Engfa & Charlotte:** Engfa directly confronted Charlotte's stalker. [Video Link](https://vt.tiktok.com/ZSxN4yURW/)
+* **Top Kissers:** A compilation of GMMTV's top female actress kissers. [Instagram Link](https://www.instagram.com/reel/DSyzAYIABCi/?igsh=ZnJ4ZWp3cTh3dW14)
+* **Davika's Twitter Drama:** Davika tweeted about not being "roi from clairebell". [Reddit Discussion](https://www.reddit.com/r/ThaiGL/comments/1rytcgs/davika_should_just_stop_tweeting/)
+* **Panjie:** Panjie openly admitted to being gay, sparking comments/discussions about other actresses in the industry.
