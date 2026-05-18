@@ -1,34 +1,20 @@
 ---
 Type: Thai GL
-Rating: 0
-Ending: Happy/Sad/ambiguos
-Date_Started:
-Date_Finished:
-Trope:
-  - -
+Status: Finished
+Rating: 8.5
+Date_Finished: 2026-05-08
 ---
-# 🎬 TItle
+# 🎬 23.5
 
 > [!summary] Synopsis & Info
-> **Genre:**  | **Studio**:  | **Episodes:** 12 | **Platform:** YouTube
-> **Synopsis:** 
-> 
+> **Genre:** Romcom | **Platform:** YouTube | **Episodes:** 12
+> **Synopsis:** Ongsa's high school life will never be the same when she carelessly tells her cute and cheerful classmate Sun "sweet dreams" using the Instagram name Earth. Unfortunately, the masculine name leads Sun to believe she's talking to a guy...
 
-**👥 Actor**
-* **Main:** [[]] & [[]]
-* **Side:** [[]] & [[]]
-
-**📊 Detailed Scores**
-* **Acting:** /10
-* **Writing:** /10
-* **Pacing:** /10
-* **Production:** /10
-
-**✨ What Worked**
-* 
-
-**🚩 What Didn't**
-*
+**👥 Characters**
+* **Main:** [[Milk]] & [[Love]]
+* **Side:** [[View]] & [[June]]
 
 **💭 Overall Review**
-* 
+* Overall very cute almost no cathartic or cryworthy. very smooth and lots of funny moments.
+* Acting is also good, editing is also good, song is a bit overused.
+* All the character are likeable
