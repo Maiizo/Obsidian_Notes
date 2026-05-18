@@ -1,0 +1,18 @@
+# 🎬 23.5
+
+> [!summary] Synopsis & Info
+> **Genre:** Romcom | **Platform:** YouTube | **Episodes:** 12
+> **Synopsis:** Ongsa's high school life will never be the same when she carelessly tells her cute and cheerful classmate Sun "sweet dreams" using the Instagram name Earth. Unfortunately, the masculine name leads Sun to believe she's talking to a guy...
+
+**👥 Characters**
+* **Main:** [[Milk]] & [[Love]]
+* **Side:** [[View]] & [[June]]
+
+**💭 Overall Review**
+* Overall very cute almost no cathartic or cryworthy. very smooth and lots of funny moments.
+* Acting is also good, editing is also good, song is a bit overused.
+* All the character are likeable
+
+
+
+
