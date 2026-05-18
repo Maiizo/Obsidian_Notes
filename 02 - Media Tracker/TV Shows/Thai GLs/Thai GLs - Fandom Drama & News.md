@@ -89,5 +89,5 @@ Namtan pernah sempet di ch3
 Film dulu banyak dapet main role di 2023 dan dia main sebagai pairingnya nanon (popular Thai bl actor) trus kena hujat sama fansnya dia. Setelah itu dia menjauh dari sosmed dan gara" namtan baru dia bisa keluar dari zonanya lagi
 
 
-Bbfanfest namtanfilm ending speech eng sub bagus n
+Bbfanfest namtanfilm ending speech eng sub bagus 
 https://vt.tiktok.com/ZSx6m8TAM/
