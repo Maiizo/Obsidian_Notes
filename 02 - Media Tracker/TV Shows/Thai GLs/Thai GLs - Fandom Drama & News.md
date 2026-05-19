@@ -1,4 +1,4 @@
-# 🎭 Thai GL Fandom & Lore Masterlist
+# Thai GL Fandom INFO Masterlist
 
 > [!info] General GL Culture & GMMTV Shipping
 > * **New to Thai GLs:** A good Reddit thread explaining casting, shipping, and pairing culture: [Read Here](https://www.reddit.com/r/GirlsLove/s/7d9ldLSh4p)
@@ -12,7 +12,7 @@
 
 ---
 
-## 🥛🍼 Milk & Love (MilkLove)
+## 🥛🍼 [[Milk]] & [[Love]] (MilkLove)
 *The first official GL couple in GMMTV.*
 
 **The Origin & Timeline:**
@@ -27,18 +27,18 @@
 
 ---
 
-## 🌴🎞️ Namtan & Film (NamtanFilm)
+## 🌴🎞️ [[Namtan]] & [[Film]] (NamtanFilm)
 *A pairing that surprised fans who originally thought they would just play siblings.*
 
 **The Origin & Casting:**
 * **The Original Plan:** Love was actually supposed to be paired with Film initially. However, GMMTV and the Snap25 production team rejected this because they saw much stronger chemistry between Namtan and Film.
-* **Building the Ship:** Film was previously shipped with Love and even Milk when Film was a newbie. Namtan and Film finally started working closely together in *Last Twilight*, *Ploy's Yearbook*, and eventually landed the main roles in *Pluto*.
-* **Manager:** Mim (@memory.mimrtd) handles management. 
+* **Building the Ship:** Film was previously shipped with Love and even Milk when Film was a newbie. Namtan and Film finally started working closely together in *Last Twilight*, *Ploy's Yearbook*, and eventually landed the main roles in *[[Pluto (2025)]]*.
+* **Manager:** [[Mim]] (@memory.mimrtd) handles management. 
 
 **Film's Backstory (The Hate Train):**
 * In 2023, Film got a lot of main roles, including being paired with Nanon (a very popular BL actor). Because of this, she received massive hate from his toxic fans. 
 * The bullying caused her to distance herself from social media. It was Namtan who stepped in and helped pull her out of her dark zone. 
-* **Must Watch:** Their BBFanfest ending speech perfectly encapsulates this. [Eng Sub Link](https://vt.tiktok.com/ZSx6m8TAM/)
+* **Must Watch:** Their [[BBFanfest]] ending speech perfectly encapsulates this. [Eng Sub Link](https://vt.tiktok.com/ZSx6m8TAM/)
 * *Note:* Milk and Film used to comment on each other's IG a lot. [Video Link](https://vt.tiktok.com/ZSxYQpBcL/)
 
 **Namtan's Backstory:**
@@ -50,8 +50,8 @@
 
 ## 🌐 Other Actresses & Fandom Drama
 
-* **Pahn's GL Debut:** Pahn is one of the most popular new straight actresses (same batch as Emi) who suddenly appeared in a GL as a fixed CP. [Reaction Link](https://vt.tiktok.com/ZSxeCwYXM/)
-* **Engfa & Charlotte:** Engfa directly confronted Charlotte's stalker. [Video Link](https://vt.tiktok.com/ZSxN4yURW/)
+* **Pahn's GL Debut:** [[Pahn]] is one of the most popular new straight actresses (same batch as Emi) who suddenly appeared in a GL as a fixed CP. [Reaction Link](https://vt.tiktok.com/ZSxeCwYXM/)
+* **[[Engfa]] & [[Charlotte]]:** Engfa directly confronted Charlotte's stalker. [Video Link](https://vt.tiktok.com/ZSxN4yURW/)
 * **Top Kissers:** A compilation of GMMTV's top female actress kissers. [Instagram Link](https://www.instagram.com/reel/DSyzAYIABCi/?igsh=ZnJ4ZWp3cTh3dW14)
 * **Davika's Twitter Drama:** Davika tweeted about not being "roi from clairebell". [Reddit Discussion](https://www.reddit.com/r/ThaiGL/comments/1rytcgs/davika_should_just_stop_tweeting/)
-* **Panjie:** Panjie openly admitted to being gay, sparking comments/discussions about other actresses in the industry.
+* **[[Panjie]]:** Panjie openly admitted to being gay, sparking comments/discussions about other actresses in the industry.

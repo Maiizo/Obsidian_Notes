@@ -1,21 +1,31 @@
 ---
 Type: Thai GL
-Status: Finished
-Rating: 810
-Date_Finished: 2026-05-08
+Rating: 10
+Date_Started:
+Date_Finished:
 ---
 # 🎬 TITLE
 
 > [!summary] Synopsis & Info
-> **Genre:** Romcom | **Platform:** YouTube | **Episodes:** 8
+> **Genre:**  | **Studio**:  | **Episodes:** 12 | **Platform:** YouTube
 > **Synopsis:** 
+> 
 
-**👥 Characters**
+**👥 Actor**
 * **Main:** [[]] & [[]]
-* **Side:** [[]]  & [[]]
+* **Side:** [[]] & [[]]
+
+**📊 Detailed Scores**
+* **Acting:** /10
+* **Writing:** /10
+* **Pacing:** /10
+* **Production:** /10
+
+**✨ What Worked**
+* 
+
+**🚩 What Didn't**
+*
 
 **💭 Overall Review**
 * 
-
-
-

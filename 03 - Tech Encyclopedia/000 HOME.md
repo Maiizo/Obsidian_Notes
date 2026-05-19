@@ -6,7 +6,6 @@
 - [[OS & Software]] (Windows, Linux, Dev Tools)
 - [[Hardware]] (CPUs, Retro Gear, Mobile)
 - [[Cybersecurity]] (Malware, Hacks, Privacy)
-- [[People & History]] (Founders, Events, Companies)
 
 ---
 ## 📎 Quick Access
