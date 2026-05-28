@@ -45,6 +45,7 @@
 * Originally worked with Channel 3 (CH3).
 * Used to be quite closed with other people that was managed by their manager before (all male actor). 
 * **The "New" Incident:** GMMTV actor New once made a highly inappropriate comment stating Namtan was "prettier than a JAV actress." [Video Link](https://vt.tiktok.com/ZSxR6c4L7/)
+* Namtan graduated from uni today 23/11/2024. pluto ep 6 1/4 might be based on that too
 
 ---
 
@@ -55,3 +56,69 @@
 * **Top Kissers:** A compilation of GMMTV's top female actress kissers. [Instagram Link](https://www.instagram.com/reel/DSyzAYIABCi/?igsh=ZnJ4ZWp3cTh3dW14)
 * **Davika's Twitter Drama:** Davika tweeted about not being "roi from clairebell". [Reddit Discussion](https://www.reddit.com/r/ThaiGL/comments/1rytcgs/davika_should_just_stop_tweeting/)
 * **[[Panjie]]:** Panjie openly admitted to being gay, sparking comments/discussions about other actresses in the industry.
+
+
+
+
+
+
+
+
+
+
+
+
+# 🌶️ Thai GL Fandom Lore & News
+
+> [!info] General GL Culture & Industry
+> * **Shipping & Culture:** New to Thai GLs FAQ / Q&A [Reddit Thread](https://www.reddit.com/r/GirlsLove/s/7d9ldLSh4p)
+> * **Top/Bottom Culture:** It turns out it's quite normal in the Thai industry to openly ask about Top/Bottom dynamics. Love was seen matchmaking people and asking about it directly. [TikTok Link](https://vt.tiktok.com/ZSxdMrhcM/)
+> * **GMMTV Pairing Strategy:** The owner of GMMTV is known to randomly shuffle "ships" (Kapal Hantu) based on target market appeal rather than keeping everyone fixed immediately. 
+> * **Top Kissers:** Compilation of top GMMTV female actress kissers. [IG Reel](https://www.instagram.com/reel/DSyzAYIABCi/?igsh=ZnJ4ZWp3cTh3dW14)
+
+---
+
+## 🚢 MilkLove (Pansa & Love)
+* **Origin:** Their first GL CP was born because they had incredible chemistry as the second couple in *Bad Buddy*, which fans loved.
+* **The "Whale Store" Incident:** After the Whale Store shoot finished, fans ("muvmuv") found a Facebook chat where the male producer and his friend were sexually harassing ML. Fans protested massively to GMMTV, resulting in the producer being fired and blacklisted from working with GMMTV.
+* **The SOKOR Trip & Shift in Dynamic:** * Around August 2024 (a few months after *23.5* ended), rumors circulated that Love broke up with her boyfriend. 
+	* Their attitude toward each other shifted dramatically after they took a trip to South Korea. It was originally supposed to be a group trip, but others canceled, leaving just the two of them.
+	* It took about 2-3 years for Pansa to get as close and "sticky" with Love as she is now. Fans who have followed them for a long time notice a huge difference.
+* **Other Trivia:**
+	* Love was originally supposed to be paired with Film, but GMMTV & Snap25 rejected it because they saw better chemistry with NamtanFilm.
+	* Fans matched P'Sam with Love and thought they really suited each other. [Video 1](https://vt.tiktok.com/ZSxdrRTfE/) | [Video 2](https://x.com/i/status/1552652619755114499)
+	* Milk and Film used to comment on each other's IG a lot. [TikTok Link](https://vt.tiktok.com/ZSxYQpBcL/)
+	* MilkLove talking about Lovesvene. [TikTok Link](https://vt.tiktok.com/ZSxLkfEF4/)
+
+---
+
+## 🚢 NamtanFilm (Namtan & Film)
+* **Origin & Casting:** They originally thought they were going to be cast as sisters in a series, and fans didn't expect them to become a CP. 
+* **Series Timeline:** They were in *Last Twilight*, *Ploy's Yearbook*, and eventually met a director who cast them in main roles for *Pluto*.
+* **Film's Backstory:** In 2023, Film got a lot of main roles and was paired with Nanon (a highly popular BL actor). She received massive hate from his fans, which caused her to withdraw from social media. Getting close to Namtan is what finally helped her get out of her comfort zone again.
+* **Namtan's Backstory:**
+	* Previously an actress at Ch3.
+	* She once had a conflict/beef with another CP manager. [X Link](https://x.com/i/status/2052837925289628049)
+	* **Controversy:** New (a GMMTV actor) once told Namtan she was prettier than a JAV actress, which caused some stir. [TikTok Link](https://vt.tiktok.com/ZSxR6c4L7/)
+* **Notable Moments:** Beautiful ending speech at BBFanfest (Eng Sub). [TikTok Link](https://vt.tiktok.com/ZSx6m8TAM/)
+
+---
+
+## 🎭 Other Actors & Pairings
+
+### Englot (Engfa & Charlotte)
+* **Stalker Incident:** Engfa directly confronted a stalker who was harassing Charlotte. [TikTok Link](https://vt.tiktok.com/ZSxN4yURW/)
+
+### Pahn
+* Pahn is one of the most popular new straight actresses (from the same batch as Emi) who suddenly appeared in a GL as a fixed CP. 
+* Reaction to the news: [TikTok Link](https://vt.tiktok.com/ZSxeCwYXM/)
+
+### Panjie
+* Panjie openly admitted to being gay. The comments section of this post is full of people discussing other actresses.
+* [Reddit Discussion](https://www.reddit.com/r/ThaiGL/comments/1rytcgs/davika_should_just_stop_tweeting/)
+
+### Davika
+* Tweeted saying she still hasn't moved on (blm roi) from ClaireBell.
+
+### Staff / Management
+* **Mim:** Manager. IG: `@memory.mimrtd`
